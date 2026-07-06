@@ -1,0 +1,1 @@
+# ArtSqr-management1
